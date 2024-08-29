@@ -6,4 +6,4 @@ estoy me desenvolvendo na linguagem JavaScripth
 -utilizo este espaço para meus projetos desenvolvidos.
 ###voce entrar em contato comigo.
 adryan.santos03@escola.pr.gov.br
-vulgo rei das boiadas
+vulgo rei das boiadas 🐂
